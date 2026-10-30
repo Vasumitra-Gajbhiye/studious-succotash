@@ -1,2 +1,3 @@
 I'm Vasumitra Gajbhiye
-I like to cook sdfsd
+I like to cook
+I study at IIMB
